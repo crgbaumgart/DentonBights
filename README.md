@@ -1,2 +1,0 @@
-# DentonBights
-Denton Bights Collective
